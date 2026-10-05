@@ -1,0 +1,2 @@
+# premium-gilt-repair-001-gilt-frame-repair-gold-leaf
+Tired of losing track of supplies and sifting through scattered tutorials for your gilt frame repairs? The Gilt Frame Repair &amp; Gold Leaf Craft Hub centralizes every step—from assessment to finishing—so you can restore antiques with confidence and precision.  This Notion template eliminates the chaos of managing multiple projects by providing a stru
